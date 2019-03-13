@@ -1,2 +1,0 @@
-# opossums
-All About Opossums
